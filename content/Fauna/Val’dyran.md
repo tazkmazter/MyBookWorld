@@ -1,0 +1,1 @@
+A plains wolf. One has to be stalked and killed in the Talavari tradition to enter manhood, amongst Many other things. 

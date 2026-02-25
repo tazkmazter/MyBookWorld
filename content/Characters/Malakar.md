@@ -1,0 +1,2 @@
+
+Malakar is a formidable general who commands legions of Zorak warriors. He is depicted as a force of nature, known for his unmatched ferocity and tactical brilliance, and his name alone is said to instil fear in even the bravest soldiers.

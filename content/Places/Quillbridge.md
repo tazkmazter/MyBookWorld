@@ -1,0 +1,2 @@
+
+Quillbridge is a small riverside town located approximately 60 miles from Willowbrook. It is situated along a road where Emberberries are common. The characters, Amylia and Maylene, previously traveled to Quillbridge by cart with their father. After escaping an attack on Willowbrook, the sisters reached Quillbridge via the river, hoping to find help there. Later, they and their companions depart from Quillbridge to pursue the Zorak convoy, which had also passed through the town. The destroyed hamlet of Mortham is also located along the same road as Quillbridge.

@@ -1,0 +1,3 @@
+Yarrin are mid-sized mountain herd beasts, larger than sheep but smaller than cattle. Broad and low to the ground, they’re built for navigating the steep, rocky plateaus of the high slopes. Their coats are thick and weatherproof, more like dense bristle than fleece, and colored to match the land: muted greys, browns, and stonewashed black. 
+
+Their faces fall somewhere between a sheep and a bear, with flat noses and a quiet, watchful demeanor. Yarrin move slowly and make little noise, aside from the occasional low moan or groan. Though not bred for hauling, they’re strong enough to carry supplies along narrow trails. More often milked than eaten, and regarded with a kind of familial respect, some say Yarrin even remember faces.
